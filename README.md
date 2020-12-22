@@ -36,5 +36,3 @@ I will not give you my bot, but feel free to use my code as you want to, let me 
 I'll be happy to use it) 
 
 ### Well, i think it's all. Bot is simple and I commented out all steps, so i don't think that i have to explain it here
-
-Thanks, here is my ig https://www.instagram.com/lower_house/ I will use it to post announces of my new projects
